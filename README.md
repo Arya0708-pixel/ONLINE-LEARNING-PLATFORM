@@ -60,3 +60,10 @@ The Learning Hub is a feature-rich online education platform designed to provide
 
 ##OUTPUT
 
+![Image](https://github.com/user-attachments/assets/77272082-4436-426e-8e9b-20f66cfcbf9e) 
+![Image](https://github.com/user-attachments/assets/aff52cb9-f699-4654-a13f-f663f5fff60c)
+![Image](https://github.com/user-attachments/assets/a539aea2-63d8-43cd-b5d9-c8a052978e1f)
+![Image](https://github.com/user-attachments/assets/0a27302f-8f5c-46b3-9fbd-4bb60ce8bf20)
+![Image](https://github.com/user-attachments/assets/1047f441-81c4-48b0-b928-a691f6f5b82e)
+![Image](https://github.com/user-attachments/assets/4ce60508-e534-4fc8-bc0c-49bc7aace925)
+
